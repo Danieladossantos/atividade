@@ -1,0 +1,2 @@
+# atividade
+CONFIGURAÇÃO DE SOFTWARE
